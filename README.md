@@ -1,1 +1,1 @@
-# masculist.github.io
+# [Masculist](https://masculist.github.io "Masculist International Edition")
